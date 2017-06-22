@@ -10,13 +10,13 @@ Eric Nesi is obsessed with sports, particularly basketball. When he is not worki
 
 "Please turn this off. Does this game even matter?" - My roommate, Throughout 2016-2017 NBA Season
 
-"I can confidently say that if Eric Nesi had been alive during my time, he probably would have invented electric light first." Thomas Edison,
+"I can confidently say that if Eric Nesi had been alive during my time, he probably would have invented electric light first." - Thomas Edison,
 
-"Eric Nesi is supremely talented and very handsome." Eric Nesi's Mom, 2016
+"Eric Nesi is supremely talented and very handsome." - Eric Nesi's Mom, 2016
 
-"Eric Nesi is one of the most quotable human beings of all time." Eric Nesi, 2017 
+"Eric Nesi is one of the most quotable human beings of all time." - Eric Nesi, 2017 
 
-"Is he seriously going to just keep making up quotes?" Person reading this, Right Now
+"Is he seriously going to just keep making up quotes?" - Person reading this, Right Now
 
 ### Contact me
 
