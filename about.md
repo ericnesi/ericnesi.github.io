@@ -20,5 +20,5 @@ Eric Nesi is obsessed with sports, particularly basketball. When he is not worki
 
 ### Contact me
 
-If you want to reach out to me, feel free to contact me using the email below.  
-[nesi.eric@gmail.com](mailto:nesi.eric@gmail.com)
+If you want to reach out to me, feel free to contact me using the links at the bottom of this page.  
+
