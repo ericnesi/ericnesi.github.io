@@ -8,11 +8,9 @@ Eric Nesi is obsessed with sports, particularly basketball. When he is not worki
 
 "Coffee is the lifeblood that fuels the dreams of champions." - Mike Ditka, Kicking & Screaming (2005)
 
-"Please turn this off. Does this game even matter?" - Eric Nesi's, Throughout 2016-2017 NBA Season
+"Please turn this off. Does this game even matter?" - Eric Nesi's Roommate, 2016-2017 NBA Season
 
 "I can confidently say that if Eric Nesi had been alive during my time, he probably would have invented electric light first." - Thomas Edison, 1901
-
-"Eric Nesi is supremely talented and very handsome." - Eric Nesi's Mom, 2016
 
 "Eric Nesi is one of the most quotable human beings of all time." - Eric Nesi, 2017 
 
